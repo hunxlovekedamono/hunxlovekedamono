@@ -3,3 +3,4 @@
 
 𓆩♡𓆪 ポピー・ザ・パフォーマー 𓆩♡𓆪 ☆ obsessed with kedamono & ookami keita ok? .!! ☆
 
+<img width="229" height="307" alt="image" src="https://github.com/user-attachments/assets/ea9ed6cf-ab3a-4474-8cec-20eafad4cade" width=400 />
