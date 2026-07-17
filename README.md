@@ -1,4 +1,4 @@
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/e89fdf87-c218-49b7-934b-2f8bbd86f178" /> 
+<img width="300" height="500" alt="image" src="https://github.com/user-attachments/assets/e89fdf87-c218-49b7-934b-2f8bbd86f178" /> 
 
 
 𓆩♡𓆪 ポピー・ザ・パフォーマー 𓆩♡𓆪 ☆ 
